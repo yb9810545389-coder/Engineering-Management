@@ -1,4 +1,3 @@
-La, **Unit IV: Human Resource Management and Control** ko **Neplish Master Note** yaha chha. Yo unit 8 hours ko weightage vako unit ho, so viva ra exam dubaiko lagi *High Priority* ma parcha.
 
 ---
 
